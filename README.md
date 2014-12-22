@@ -35,88 +35,36 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Eirenokoinonia. The peace of the communion of the Church of England. Or, The conformitie of the cere
+
+1. AD ANGLIAM.
+
 #####Body#####
 
-1. The firſt THESE.
+1. The Theſes confirmed in this Booke, by the authoritie of the holy Scriptures, and the Primitiue Church eſtabliſhed by the holy Apoſtles.
 
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
+    _ The firſt THESE.
 
-    _ The Teſtimonies and proofes of this, doe follow.
+    _ The ſecond THESE.
 
-    _ The Proofes and Teſtimonies of the third THESE.
+    _ The third THESE.
 
-    _ The Teſtimonies and Proofes of the third THESE.
+    _ The fourth THESE.
 
-1. The ſecond THESE.
+    _ The firſt THESE.
 
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
+      * The illuſtration, and confirmation of the firſt part of the firſt THESIS.
 
-    _ The Teſtimonies and proofes of this, doe follow.
+    _ The ſecond THESE.
 
-    _ The Proofes and Teſtimonies of the third THESE.
+      * The Teſtimonies and proofes of this, doe follow.
 
-    _ The Teſtimonies and Proofes of the third THESE.
+    _ The third THESE.
 
-1. The third THESE.
+      * The Proofes and Teſtimonies of the third THESE.
 
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
+    _ The fourth THESE.
 
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
-
-1. The fourth THESE.
-
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
-
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
-
-1. The firſt THESE.
-
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
-
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
-
-1. The ſecond THESE.
-
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
-
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
-
-1. The third THESE.
-
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
-
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
-
-1. The fourth THESE.
-
-    _ The illuſtration, and confirmation of the firſt part of the firſt THESIS.
-
-    _ The Teſtimonies and proofes of this, doe follow.
-
-    _ The Proofes and Teſtimonies of the third THESE.
-
-    _ The Teſtimonies and Proofes of the third THESE.
+      * The Teſtimonies and Proofes of the third THESE.
 
 **Types of content**
 
